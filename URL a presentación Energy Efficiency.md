@@ -1,0 +1,1 @@
+[Ver Presentación Energy Efficiency en Canva](https://www.canva.com/design/DAGFC-jMbZo/Da1k2Ec2RBmvCZF6lvProw/edit?utm_content=DAGFC-jMbZo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
